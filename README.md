@@ -1,4 +1,4 @@
-# My story
+# My story (gangstalking, RNM, targeted individual)
 
 Episode 1: Cyprus, Pafos (December 2021)
 - Location: Rented apartment used for illegal neuro-interface activation and tuning
