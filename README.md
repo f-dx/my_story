@@ -69,9 +69,9 @@ Episode 8: Madrid, Spain (2024)
   * Synthetic dreams continuation
   * Large-scale "Street Theater" (20% of local population)
   * Employment at company with 20% neuro-interface users
-  * Attempted system onboarding
+  * Attempted system onboarding by Hive Mind Society
   * Multiple nocturnal incident provocations
-  * Faraday cage construction attempt
+  * My first Faraday cage construction attempt
 
 Episode 9: Madrid, Spain (2025)
 - Key events:
