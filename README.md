@@ -75,8 +75,9 @@ Episode 8: Madrid, Spain (2024)
 
 Episode 9: Madrid, Spain (2025)
 - Key events:
-  * Reduced synthetic dreams through salt usage
+  * Reduced synthetic dreams
   * Development of chemical contractions suppression techniques
   * Bronchial attack connected to neuro-interface
   * Continued upper-level respiratory attacks through DEW
+  * Regular sleep deprivation 
   * Continued sexual assault simulations/incidents (during sleep)
