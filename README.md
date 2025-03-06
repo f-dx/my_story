@@ -81,3 +81,4 @@ Episode 9: Madrid, Spain (2025)
   * Continued upper-level respiratory attacks through DEW
   * Regular sleep deprivation 
   * Continued sexual assault simulations/incidents (during sleep)
+  * Memories alteration, brainwashing during sleep
