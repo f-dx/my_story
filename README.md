@@ -82,3 +82,4 @@ Episode 9: Madrid, Spain (2025)
   * Regular sleep deprivation 
   * Continued sexual assault simulations/incidents (during sleep)
   * Memories alteration, brainwashing during sleep
+  * Regular abuse using neural modulation to promote alertness
