@@ -6,6 +6,14 @@ Writing this in 2025, I can summarize that my experience involves engineered tor
 This is my message to gangstalkers: "I am confident that your cruel, barbaric acts of covert violence will be punished by laws. 'Never Again' - this phrase can be applied directly to my case. I will spend every breath of this life dedicated to my fight for justice and to stop worldwide tortures of innocent people like me by your organization of organized cowards, liars, and sociopaths. I encourage you to show your courage and be a whistleblower against high-tech fascism of the 21st century. Don't let the corrupt elites dictate how we should live and what we should do. Free yourself and live your own independent, happy life with good karma - this is my wish for you."
 
 
+### More than 20 laws and 4 World-wide conventions are violated. 
+
+## Total legal responsibility for this set of crimes is equal: 
+### More than 20 laws and 4 worldwide conventions are violated. Total legal responsibility for this set of crimes is equal to: from 15 years of imprisonment to lifetime imprisonment for every decision maker at any level.
+
+
+
+
 Episode 1: Cyprus, Pafos (December 2021)
 - Location: Rented apartment used for illegal neuro-interface activation and tuning
 - Key events:
@@ -79,7 +87,7 @@ Episode 8: Madrid, Spain (2024)
   * Multiple nocturnal incident provocations
   * My first Faraday cage construction attempt
 
-Episode 9: Madrid, Spain (2025)
+Episode 9: Madrid, Spain (2025 Jan-Feb)
 - Key events:
   * Reduced synthetic dreams
   * Development of chemical contractions suppression techniques
@@ -89,3 +97,9 @@ Episode 9: Madrid, Spain (2025)
   * Continued sexual assault simulations/incidents (during sleep)
   * Memories alteration, brainwashing during sleep
   * Regular abuse using neural modulation to promote alertness
+
+Episode 10: Madrid, Spain (2025 Mar-)
+- Key events:
+  * The aggregated 
+
+
