@@ -96,6 +96,6 @@ Episode 9: Madrid, Spain (2025 Jan-Feb)
 Episode 10: Madrid, Spain (2025 Mar-)
 - Key events:
   * [response] Aggregated foundation for Neural Laws based on large-scale research (200+ sources)
-  * [response] Created Large-scale AI OSINT research platform for investigation of crimes using covert neural inerfaces
+  * [response] Created Large-scale AI OSINT research platform for investigation and proofs collection for crimes using covert neural inerfaces
 
 
