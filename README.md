@@ -1,5 +1,7 @@
 # My story (gangstalking, RNM, targeted individual)
 
+Writing this in 2025, I can summarize that my experience is engineered tortures by HiveMind society designed specifically to supress my will for easy onboarding to HiveMind society. But in the process I found myself stronger then them, so decided to fight back and organize neural security business, neural laws protection activism organization, write a few books, connect with ALL opponents of gangstalking, and do my best to stop "targeted individuals" and "gangstalking" phenomana by taking massive action.
+
 Episode 1: Cyprus, Pafos (December 2021)
 - Location: Rented apartment used for illegal neuro-interface activation and tuning
 - Key events:
