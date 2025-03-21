@@ -99,6 +99,6 @@ Episode 9: Madrid, Spain (2025 Jan-Feb)
 
 Episode 10: Madrid, Spain (2025 Mar-)
 - Key events:
-  * The aggregated 
+  * Aggregated foundation for Neural Laws based on large-scale research (200+ sources)
 
 
