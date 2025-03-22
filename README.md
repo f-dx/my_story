@@ -88,13 +88,14 @@ Episode 9: Madrid, Spain (2025 Jan-Feb)
   * [response] Development of antidot for skin BCI used for muscle twitches torture
   * [crime] Bronchial attack connected to neuro-interface
   * [crime] Continued upper-level respiratory attacks through DEW
-  * [crime] Regular sleep deprivation 
+  * [crime] Regular sleep deprivation
   * [crime] Continued sexual assault simulations/incidents (during sleep)
   * [severe crime] Memories alteration, brainwashing during sleep
   * [crime] Regular abuse using neural modulation to promote alertness
 
 Episode 10: Madrid, Spain (2025 Mar-)
 - Key events:
+  * [crime] Unknown forms of directed energy weapons: 3-4 nightly attacks per month 
   * [response] Aggregated foundation for Neural Laws based on large-scale research (200+ sources)
   * [response] Created Large-scale AI OSINT research platform for investigation and proofs collection for crimes using covert neural inerfaces
 
