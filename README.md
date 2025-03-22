@@ -85,7 +85,7 @@ Episode 8: Madrid, Spain (2024)
 
 Episode 9: Madrid, Spain (2025 Jan-Feb)
 - Key events:
-  * [response] Development of antidot for skin BCI (chemical formula)
+  * [response] Development of antidot for skin BCI used for muscle twitches torture
   * [crime] Bronchial attack connected to neuro-interface
   * [crime] Continued upper-level respiratory attacks through DEW
   * [crime] Regular sleep deprivation 
