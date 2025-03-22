@@ -80,7 +80,7 @@ Episode 8: Madrid, Spain (2024)
   * [crime] Large-scale "Street Theater" (20% of local population)
   * [crime] Attempted system onboarding by Hive Mind Society
   * [crime] Multiple nocturnal incident provocations
-  * [response] My first Faraday cage construction attempt
+  * [response] My first Faraday cage room construction attempt
   * [response] First prototype of first in class Neural Security device
 
 Episode 9: Madrid, Spain (2025 Jan-Feb)
