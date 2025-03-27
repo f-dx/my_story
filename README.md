@@ -98,5 +98,6 @@ Episode 10: Madrid, Spain (2025 Mar-)
   * [crime] Unknown forms of directed energy weapons: 3-4 nightly attacks per month 
   * [response] Aggregated foundation for Neural Laws based on large-scale research (200+ sources)
   * [response] Created Large-scale AI OSINT research platform for investigation and proofs collection for crimes using covert neural inerfaces
+  * [response] Created Neurolaws.org and Neurolaws.com Initiatives to start large-scale investigation and legal action against covert neural interfaces
 
 
