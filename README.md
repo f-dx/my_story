@@ -99,5 +99,6 @@ Episode 10: Madrid, Spain (2025 Mar-)
   * [response] Aggregated foundation for Neural Laws based on large-scale research (200+ sources)
   * [response] Created Large-scale AI OSINT research platform for investigation and proofs collection for crimes using covert neural inerfaces
   * [response] Created Neurolaws.org and Neurolaws.com Initiatives to start large-scale investigation and legal action against covert neural interfaces
+  * [response] Had to remove top layers of skin on approx. 30% of my body surface to get rid of micro-contractions caused by bio weapon used for psy tortures
 
 
